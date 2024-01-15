@@ -7,3 +7,5 @@
 
 
 ![MLAW_PS20200002053_04102023114049_cert-1](https://github.com/ahmedtechworks/RK-WEBSITE/assets/140552786/842704a3-e1d3-458c-8f22-a437edde2d4c)
+
+![ROYAL KINGS HK LIMITED](https://github.com/ahmedtechworks/RK-WEBSITE/assets/140552786/409e2afb-f495-48aa-86bc-059473c56b05)
